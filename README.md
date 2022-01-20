@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Edudorm
-- 👀 I’m interested in everything related to essay writing, assignment writing, homeowkr help, coursework writing
+- 👀 I’m interested in everything related to essay writing, assignment writing, homework help, coursework writing
 - 💞️ I’m looking to collaborate on anything related to academic writing.
 - 📫 How to reach me at https://www.edudorm.com/
